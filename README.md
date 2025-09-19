@@ -43,3 +43,7 @@ Este proyecto explora las sinergias entre la práctica deportiva y la artística
 A partir de esta búsqueda, se propone una reflexión —desde la perspectiva de la ludología— sobre las reglas como fundamento común y punto de encuentro entre ambos ámbitos.
 
 ---
+
+## Muestras
+[ChessMusicMachine Acordes](https://www.instagram.com/p/C38UWTQiTHu)
+[ChessMusicMachine Sampling MPC](https://www.instagram.com/p/C502qXui_JD/?img_index=1)
